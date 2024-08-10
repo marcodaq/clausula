@@ -1,0 +1,1 @@
+Parágrafo Único – Em caso de atraso da conclusão da obra com relação ao prazo estipulado acima em que a sócia-ostensiva figurar como culpada, esta pagará ao sócios-participantes multa de 2% acrescida de juros de mora de 1% por mês de atraso, cobrados nas formas da lei, sobre o valor da unidade que não for entregue.
